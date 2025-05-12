@@ -1,6 +1,6 @@
 ## X.INK (XOS) Auto Reff + Bind Twitter
 
-Register X.INK [Here](X.ink/HV0DGZ)
+Register X.INK [Here](https://X.ink/HV0DGZ)
 
 ## Features
 
